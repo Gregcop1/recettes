@@ -1,11 +1,12 @@
 # Baguettes 
 
+![](../img/baguettes.png)
+
 ## Ingrédients
 pour 3 baguettes
 
-    100g de farine semi-complète
-    462g de farine t65
-    393g d'eau tiède 
+    560g de farine (510g de T65 et 50g de T110)
+    39cl d'eau tiède 
     13g de sel 
     5g de levure sèche (ou 20g de levure fraiche)
 
@@ -16,4 +17,6 @@ Pincer deux bords opposés, étirer le paton en le tapotant sur le plan de trava
 
 Recommencer l'étape de façonnage (pincer, rabattre, rouler, ...). Faconner la forme des baguettes en partant du centre et en appuyant tout en écartant les mains. Réserver la baguette sur un linge plié et fariné et laisser lever 30 minutes.
 
-Grigner le pain sur 3 entailles et enfourner 30 minutes à 220°C en faisant une buée en début de cuisson.
+Grigner le pain sur 3 entailles et enfourner à 220°C en faisant une buée en début de cuisson.
+
+Sortir les baguettes du four au bout de 30 minutes et les poser sur une grille.

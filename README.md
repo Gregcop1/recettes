@@ -80,6 +80,8 @@
 ## Pains
 
 - [Baguettes](./pains/Baguettes.md)
+- [Buns pour Hamburger](./pains/Buns-pour-hamburger.md)
+- [Pâte à pain universelle](./pains/Pate-a-pain-universelle.md)
 
 ## Petit déjeuner
 
