@@ -15,10 +15,10 @@ Ingrédients pour 6 à 8 personnes
     vanille en poudre
 
 ## Recette
-C’est encore la saison des prunes, je vous propose donc aujourd’hui de les déguster avec la simplicité d’une recette de cobbler. Le cobbler est une recette très présente aux Etats-Unis. Un peu comme notre crumble il est composé de fruits recouverts de biscuit. Une recette moelleuse qui vous plaira certainement.
+C'est encore la saison des prunes, je vous propose donc aujourd'hui de les déguster avec la simplicité d'une recette de cobbler. Le cobbler est une recette très présente aux Etats-Unis. Un peu comme notre crumble il est composé de fruits recouverts de biscuit. Une recette moelleuse qui vous plaira certainement.
 
 Faites préchauffer votre four à 180°.
-Dans une poêle faites revenir les prunes lavées et dénoyautées et coupées en 2 avec un peu de beurre. Si vos prunes sont un peu acides, n’hésitez pas à les sucrer légèrement. Une fois les prunes légèrement compotées, déposez les dans un plat haut allant au four et légèrement beurré.
+Dans une poêle faites revenir les prunes lavées et dénoyautées et coupées en 2 avec un peu de beurre. Si vos prunes sont un peu acides, n'hésitez pas à les sucrer légèrement. Une fois les prunes légèrement compotées, déposez les dans un plat haut allant au four et légèrement beurré.
 Mélangez ensuite tous les éléments de la pâte : le beurre végétal, le sucre, la farine, la crème végétale, la levure et la vanille.
 Déposez la pâte sur les prunes, cuillérée par cuillerée. Enfournez pour 35/40 minutes.
 Dégustez tiède ou froid.

@@ -10,12 +10,12 @@ Ingrédients pour une tarte 6 à 8 personnes
     600g de rhubarbe
     1 grosse pomme (ou 2 petites)
     175g de sucre cassonade
-    150g de poudre d’amande
+    150g de poudre d'amande
     75g de farine de riz
     75g de beurre végétal
 
 ## Recette
-C’est la saison de la rhubarbe. A la maison on adore ça et le choix est toujours compliqué entre confiture, compote ou dessert. Cette fois-ci j’ai opté pour une recette que j’ai vu passer sur les réseaux et qui m’a immédiatement fait de l’œil… Comme d’habitude un ou deux petits arrangements personnels, et hop ;) on s’est régalé :p
+C'est la saison de la rhubarbe. A la maison on adore ça et le choix est toujours compliqué entre confiture, compote ou dessert. Cette fois-ci j'ai opté pour une recette que j'ai vu passer sur les réseaux et qui m'a immédiatement fait de l'œil… Comme d'habitude un ou deux petits arrangements personnels, et hop ;) on s'est régalé :p
 
 Préchauffez votre four à 200°.
 Épluchez la rhubarbe puis coupez la en tronçons. Faites de même avec la pomme. Versez dessus 100g de sucre cassonade et faites compoter à feux doux pendant une quinzaine de minutes. La rhubarbe doit rester moelleuse sans complètement se défaire.
